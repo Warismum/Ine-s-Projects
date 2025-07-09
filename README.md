@@ -1,2 +1,2 @@
-# Ine-s-Projects
-My projects
+# Project Title: How Social Media Usage Affects Academic Performance
+
